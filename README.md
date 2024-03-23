@@ -1,5 +1,5 @@
 [![довнлоад](https://github.com/Andre2381d/Exd/assets/164078889/e8979df9-979e-4e74-8acd-f099adce6b8d)
-](https://goo.su/hJXaEz)
+](https://bit.ly/3TxX4vv)
 
 > Archive Password : 2024
 
